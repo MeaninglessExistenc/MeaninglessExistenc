@@ -1,5 +1,3 @@
-I FUCKING HATE GITHUB.
-THE ONLY REASON I STARTED IT WAS SO I WOULDN'T SEEM LIKE A FUCKING OUTCAST IN A FUCKING PONY TOWN.
-THIS WEBSITE IS SUCK.
-THIS WEBSITE IS FUCKING SUCK.
-CAN SOME ONE AT LEAST EXPLAIN ME HOW TO ADD FUCKING IMAGES HERE.
+looking for some1 who can explain how to use GitHub and create NORMAL representations.
+I can't figure it out on my own anymore. 
+All guides and tutorials are useless.dx

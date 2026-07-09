@@ -1,3 +1,5 @@
-looking for some1 who can explain how to use GitHub and create NORMAL representations.
-I can't figure it out on my own anymore. 
-All guides and tutorials are useless.
+this account is only for bio.
+Nothing more really.
+But I would be glad to find people who can help with creating pretty representations.
+(like add pictures, gifs, rainbow texts and etc.)
+Please.fori
